@@ -1,1 +1,0 @@
-# hinodegiri.github.io
